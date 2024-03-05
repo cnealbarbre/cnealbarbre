@@ -1,4 +1,4 @@
-Hi 👋 My name is Neal
+C. Neal Barbre
 ============================
 
 Product Owner and UX/UI Manager
