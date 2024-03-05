@@ -6,7 +6,7 @@ Product Owner and UX/UI Manager
 
 * 🌍  I'm based in Ball Ground, Georgia
 * ✉️  You can contact me at [cnealbarbre@gmail.com](mailto:cnealbarbre@gmail.com)
-* 🧠  I'm learning Scrum Master Certification
+* 🧠  Seeking Scrum Master Certification
 
 ### Skills
 
