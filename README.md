@@ -1,4 +1,4 @@
-Hi 👋 My name is C Neal Bare
+Hi 👋 My name is Neal
 ============================
 
 Product Owner and UX/UI Manager
